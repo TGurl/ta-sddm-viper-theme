@@ -1,0 +1,1 @@
+# ta-sddm-viper-theme
